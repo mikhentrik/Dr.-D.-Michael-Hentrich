@@ -1,0 +1,1 @@
+Explore in-depth and unique insights and understanding of Sun Myung Moon, the Divine Principle and God's Providence with this GPT. Dr. Hentrich brings decades of living, lecturing and publications to the table with his perspectives. A MUST for any serious seeker.
